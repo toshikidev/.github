@@ -5,7 +5,7 @@
 💖𝓜𝓪𝔂 𝔂𝓸𝓾 𝓪𝓵𝔀𝓪𝔂𝓼 𝓫𝓮 𝓵𝓾𝓬𝓴𝔂💖
 💖𝕸𝖆𝖞 𝖞𝖔𝖚 𝖆𝖑𝖜𝖆𝖞𝖘 𝖇𝖊 𝖑𝖚𝖈𝖐𝖞💖
 
-
+![](https://fun.chenskiro.com/api?theme=buefy)
 
 
 　　　 　　／＞　　フ<br>
